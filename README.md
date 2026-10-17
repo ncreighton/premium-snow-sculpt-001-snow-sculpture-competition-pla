@@ -1,0 +1,2 @@
+# premium-snow-sculpt-001-snow-sculpture-competition-pla
+Stop losing your tools in the snow and missing submission deadlines — this Notion template turns your snow sculpture competition from a frozen mess into a seamless, award-winning event.  The Snow Sculpture Competition Planner centralizes design ideas, team schedules, tool inventory, and judging rubrics into one living document. It solves the unique
